@@ -39,3 +39,14 @@ THE COLLECTOR
   
   
   If you have any other suggestions, you may edit the story and please write down what you edited to make it easier for everyone! :D
+  
+  
+  
+  
+  
+  
+  
+  Story no.2
+  *THE BREAKOUT*
+  It was a typical day in the SCP facility. The morning shift had just started and at that moment, there were about 400 people in the facility. 049 paced around in its cell, muttering an unkown language to itself and performing its usual surgery, while two guards stood behind the door. The old man was in one of the corridors, limp and just standing there, in its trance state. 999 was on its beanbag chair, chewing joyfully on a lolipop while four guards sat on coffee tables amd watched it. The wendigo skull lay dormant, safe in its glass box. A guard walked into the cafeteria, and walked towards 231, the vending machine. A little cup of joy, mixed with some energy please he said. The machine gurgled and shook for a minute, then a cup of neon blue liquid with yellow stripes appeared in the guards cup. He grabbed it and took a sip of the mixture. He immediately felt a lot more awake and happy. 096 lay curled in a ball in its dark room, muttering to itself in its blissful sleep. 1431 paced around in its terrarium, whistling greetings to the many guards and scientists that passed.
+  All of a sudden, a loud scream pierced the air, like a dagger on soft flesh. It came from one of the coridoors. Guards rushed to the area, only to catch a glimpse of the black, rotting portal that closed in the wall. Suddenly, the sound of shattering glass triggered a loud alarm, to the already frightened staff. the wendigo skull had shattered what used to be its home, and had latched on to one of the guards. The facility was now in a state of complete frenzy and shock; there had never been a breach of two or more SCPs before, and the guards were totally unprepared. Suddenly, everyone became calm. "EVERYTHING IS FINE EVERYTHING IS NORMAL.NOTHING IS HAPPENING RIGHT NOW was the only thought in everyone's minds as they fell into a sudden  state of relief. 1470, the portia spider, sat on its enclosure, slowly burning the thought into everyone's mind. The doorman, who had been longing for this moment, appeared out of its door, sending a guard into instant shock as he screamed in horror and fell to the ground. The wendigo sull, happy with its new host and body, ran immediately and gathered some sustinance for itself, chewing on the fresh meat as it muttered to itself.058 stood gleefully at the base of its enclosure,the key to 1470s enclosure in its barbed stinger, happy with the chaos commited. In the frenzy, the wendigo skull, with its host, grabbed an unconcious guard and used his card to open a door, at the same time taking a small snack, an impulse of its cannibalistic nature. Once in the open world, it ran. It ran into a nearby clump of trees and disappeared into the forest.
